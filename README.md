@@ -1,5 +1,9 @@
 ![1000003813](https://github.com/user-attachments/assets/c7cf112a-5b4e-4230-8178-1a87cb873d6f)
 
 <p align="center">She / her</p>
-<p align="center">Straight ally</p>
-<p align="center">Español - English - 한국어</p>
+<p align="right">Straight ally</p>
+<p align="left">Español - English - 한국어</p>
+
+  <img width="736" height="736" alt="1000003820" src="https://github.com/user-attachments/assets/b715eab2-a349-479f-bff6-b9e44fd91cae" />
+
+
