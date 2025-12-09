@@ -9,7 +9,7 @@
   
 | ♥  | ♥ |
 | ------------- | ------------- |
-| [Tom](https://https://github.com/spikedfist)  | [jarosek](https://https://github.com/PolishKorean2009?tab=following)|
+| [Tom](https://https://github.com/spikedfist)  | [jarosek](https://github.com/PolishKorean2009)|
 | [Yuyu](https://github.com/yuriemeow) | [Toast](https://github.com/toastissogood6-ui) |
 
 STILL ADDING PEOPLE 
