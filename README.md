@@ -5,7 +5,7 @@
 
 
 
- <p align="center">${\textsf{\color{#e94e4e} Straight - She/Her - English + 한국어}}$</p>
+ <p align="center">${\textsf{\color{#e94e4e} Straight - She/Her - English + 한국어 - 14}}$</p>
 
 
 
