@@ -1,4 +1,1 @@
-
-${\color{gray}\Huge{\texttt{Show bro sum mo love twin ↓}}}$
-
-<img width="1080" height="2400" alt="1000004337" src="https://github.com/user-attachments/assets/b40129d1-b3d1-4909-8dc1-1f4f89cd0978" />
+![1000004347](https://github.com/user-attachments/assets/5060f4f4-bc03-4acd-9598-06b9d9fdea39)
