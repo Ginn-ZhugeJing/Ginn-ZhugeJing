@@ -5,3 +5,7 @@ This is gon sound stupid af but even if I play pt I perfer nobody on pt to int u
                                  << SHOYO , MARTIN , AJ >>
 
   Sign [SHO'S ATA!!!!!!!!!!!!!1](https://github.com/82-major)
+
+" Lngshot is evil Cortis ! " I hate yall so fucking much yall are lit the most annoying ppl ever ya'll have NO reason to call Lngshot evil Cortis, they are nothing alike other then the fact they are teenagers big dawg. Grow tf up. ( Idgaf if ur joking about it but if ur fr then um are u ok)
+
+Yeah I perfer Lngshot but I aint gon just hate and shit on Cortis for it. If your against Lngshot just because they are a "ripoff" or "evil" ver of Cortis, your just setting entertainment for yourself bc I lit dont even think Lngshot and Cortis have any problems with eachother so if your against either of them in general for no reason, your just arguing with a wall.
