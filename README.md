@@ -11,4 +11,15 @@ This is gon sound stupid af but even if I play pt I perfer nobody on pt to int u
 If u have another reason to not fw lngshot, idc. thats u and as long as u aint dog shitting on lngshot then idgaf.
 Hating on Cortis or Lngshot for no reason is just wild to me
 
+_________
+
+♡ things I saw on PT that I think sound dumb af ♡
+
+*Random bozo*: I KNOW everyone on it has discord. **Girl shut ur goofy ass up like so what bro what point are you trying to make 😭🥀 ( I don't have discord so u assuming is kinda wild to me. Just bc ur a discord E kitten doesn't mean we all are ♡ )
+
+*Random bozo*: ITS not my fault I get uncomfortable seeing doubles of my kins.(They said as they were being rude to someone for cosplaying the same video game character as them) **HG ITS A PONY GAME STOP.😭**
+
+*Random bozo*: kys (bc I covered them three times by accident in a crowded area) **okay**
+
+mannnnn pt players wack af (except my friends)
 
