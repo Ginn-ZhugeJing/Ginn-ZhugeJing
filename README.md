@@ -15,11 +15,11 @@ _________
 
 ♡ things I saw on PT that I think sound dumb af ♡
 
-*Random bozo*: I KNOW everyone on it has discord. **Girl shut ur goofy ass up like so what bro what point are you trying to make 😭🥀 ( I don't have discord so u assuming is kinda wild to me. Just bc ur a discord E kitten doesn't mean we all are ♡ )
+*Random bozo*: "I KNOW everyone on ponytown has discord." **Girl shut ur goofy ass up like so what bro what point are you trying to make 😭🥀 ( I don't have discord so u assuming is kinda wild to me. Just bc ur a discord E kitten doesn't mean we all are ♡ )**
 
-*Random bozo*: ITS not my fault I get uncomfortable seeing doubles of my kins.(They said as they were being rude to someone for cosplaying the same video game character as them) **HG ITS A PONY GAME STOP.😭**
+*Random bozo*: "ITS not my fault I get uncomfortable seeing doubles of my kins."(They said as they were being rude to someone for cosplaying the same video game character as them) **HG ITS A PONY GAME STOP.😭**
 
-*Random bozo*: kys (bc I covered them three times by accident in a crowded area) **okay**
+*Random bozo*: "kys" (bc I covered them three times by accident in a crowded area) **okay**
 
 mannnnn pt players wack af (except my friends)
 
