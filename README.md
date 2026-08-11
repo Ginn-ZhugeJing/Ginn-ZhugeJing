@@ -19,7 +19,4 @@ _________
 
 *Random bozo*: "ITS not my fault I get uncomfortable seeing doubles of my kins."(They said as they were being rude to someone for cosplaying the same video game character as them) **HG ITS A PONY GAME STOP.😭**
 
-*Random bozo*: "kys" (bc I covered them three times by accident in a crowded area) **okay**
-
-mannnnn pt players wack af (except my friends)
-
+*Random bozo*: "kys" (bc I covered them three times by accident in a crowded area) **okay its just a game and its not that damn deep but wtv helps u sleep at night ig bro**
