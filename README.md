@@ -6,7 +6,7 @@
 
 ⠀⠀ ⠀ ⠀  ⠀ [straw](https://uhmhimynameisleahandilikecatsandturtlesand.straw.page/) . [ata](https://leah365.atabook.org) . [prns](https://en.pronouns.page/@leahakasouma) . [g.lol](https://guns.lol/leah_leah_leah)
 
-⠀ ⠀ ⠀ ⠀ sign [Shoyo's Ata!!](https://github.com/82-major)
+⠀ ⠀ ⠀⠀ ⠀ ⠀ sign [Shoyo's ata!!!](https://shosletters.atabook.org/)
 
 
 
