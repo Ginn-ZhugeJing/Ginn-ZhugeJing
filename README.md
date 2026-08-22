@@ -4,7 +4,7 @@
 
 <img width="736" height="981" alt="197" src="https://github.com/user-attachments/assets/f3fd48a5-7bdc-4640-a403-be4a0bfb0de9" />
 
-⠀⠀ ⠀ ⠀  ⠀ [straw](https://uhmhimynameisleahandilikecatsandturtlesand.straw.page/) . [ata](https://leah365.atabook.org) . [prns](https://en.pronouns.page/@leahakasouma) . [g.lol](https://guns.lol/leah_leah_leah)
+⠀⠀ ⠀ [straw](https://leahbigbootygraber.straw.page/) . [ata](https://leah365.atabook.org) . [prns](https://en.pronouns.page/@leahakasouma) . [g.lol](https://guns.lol/leah_leah_leah)
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ sign [Shoyo's ata!!!](https://shosletters.atabook.org/)
 
